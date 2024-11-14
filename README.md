@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Computermindzz
+- 👋 Hi, I’m @Tejas Goel
 - 👀 I’m interested in coding using different languages.
 - 📫 How to reach me ...
 
